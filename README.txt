@@ -10,3 +10,6 @@ DB TO DB 설계
 Git 공부도 하고 BW도 하고 또 모 준비해야지?
 
 모야 제대로 좀 하자 응?
+
+더 이상 말로 하지 않겠다.
+This is Sppaaaaarrrrrrttta!!!!!! Aow Aow Aow!
